@@ -4,6 +4,7 @@
 Aerofit is a leading brand in the field of fitness equipment. Aerofit provides a product range including machines such as treadmills, exercise bikes, gym equipment, and fitness accessories to cater to the needs of all categories of people.
 
 **Recommendations**
+
 Female who prefer exercising equipments are very low here. Hence, we should run a marketing campaign on to encourage women to exercise more
 
 KP281 & KP481 treadmills are preferred by the customers whose annual income lies in the range of 39K - 53K Dollars. These models should promoted as budget treadmills.
